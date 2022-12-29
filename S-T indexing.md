@@ -1,4 +1,4 @@
-![](media/d3779e9ae5f33739cf7059eab321333a.png)![](media/01bf5b85489cdf66fbd9f1241dc46e94.png)
+![](d3779e9ae5f33739cf7059eab321333a.png)![](01bf5b85489cdf66fbd9f1241dc46e94.png)
 
 **ΠΑΝΕΠΙΣΤΗΜΙΟ ΠΕΙΡΑΙΩΣ**
 
